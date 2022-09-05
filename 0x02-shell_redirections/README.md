@@ -1,1 +1,1 @@
-Task 0.Hello World
+(13)Being unique is better than being perfect (14)It must be in that file (15)Count that word (16)Whats next (17)I hate bins (18)Letters only please (19)A to Z (20)Without C you would live in hiago (21)esreveR (22)DJ Cut Killer
